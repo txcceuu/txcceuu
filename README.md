@@ -8,8 +8,6 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=txcceuu&icon=9&color=7)](https://visitcount.itsvg.in)
 
-#
-
 <br clear="both">
 
 <picture>
